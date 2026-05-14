@@ -1,4 +1,4 @@
-#  
+#  smart fisch it Script is the best fisch it Script, featuring aimbot and auto-farm. Safe and powerful for all your needs.
 
 
 
